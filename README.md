@@ -1,7 +1,7 @@
 - 👋 Hi, I'm Flakes 
-- 🌱 I’m a student in The university of Nairobi 
-- 💞️ I’m looking fir friends to interact with 
-- 📫 Contact me if you can 0714334945 
+- 🌱 I’m a student at The university of Nairobi 
+- 💞️ I’m looking for friends to interact with 
+- 📫 Contact me if you can-0714334945 
 - 😄 Pronouns: ...He/Him
 - ⚡ Fun fact: ...Life is short but you're shorter 
 
